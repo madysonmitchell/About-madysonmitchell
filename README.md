@@ -2,7 +2,6 @@
 Just a little context of the creator :) 
 Hi. I’m Maddie. 25 years old.
 
-Turns out I’m a polymath. Didn’t know. Found out a couple months ago.
 I create anything and everything whenever it gets stuck in my brain long enough.
 
 I think black holes and white holes are yin and yang.
